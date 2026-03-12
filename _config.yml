@@ -1,0 +1,7 @@
+title: Asia Casino Reviews
+description: Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal
+baseurl: "/acr-casino-reviews"
+url: "https://bb8bdt-ops.github.io"
+theme: minima
+plugins:
+  - jekyll-feed
