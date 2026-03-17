@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (4 articles)
+## Latest Reviews (5 articles)
 
+- [Nagad Casino Deposit Guide — Bangladesh 2026](./nagad-casino-deposit-guide-bangladesh-2026/)
 - [bKash Casino Deposit Guide 2026 — Step by Step with Screenshots](./bkash-casino-deposit-guide-2026-step-by-step-with-screenshot/)
 - [Best Online Casino Sri Lanka 2026 — Our Verified Picks](./best-online-casino-sri-lanka-2026-our-verified-picks/)
 - [BB8 Casino Bangladesh — Detailed Review After 3 Months of Testing](./bb8-casino-bangladesh-detailed-review-after-3-months-of-test/)
