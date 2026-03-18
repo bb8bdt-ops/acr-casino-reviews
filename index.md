@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (5 articles)
+## Latest Reviews (6 articles)
 
+- [FriMi Casino Deposit Guide — Sri Lanka 2026](./frimi-casino-deposit-guide-sri-lanka-2026/)
 - [Nagad Casino Deposit Guide — Bangladesh 2026](./nagad-casino-deposit-guide-bangladesh-2026/)
 - [bKash Casino Deposit Guide 2026 — Step by Step with Screenshots](./bkash-casino-deposit-guide-2026-step-by-step-with-screenshot/)
 - [Best Online Casino Sri Lanka 2026 — Our Verified Picks](./best-online-casino-sri-lanka-2026-our-verified-picks/)
