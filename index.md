@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (7 articles)
+## Latest Reviews (8 articles)
 
+- [JILI Slots Guide 2026 — The Definitive Breakdown for Asian Players](./jili-slots-guide-2026-the-definitive-breakdown-for-asian-pla/)
 - [eSewa Casino Guide — Nepal's Most Trusted Payment Method for Online Casinos](./esewa-casino-guide-nepals-most-trusted-payment-method-for-on/)
 - [FriMi Casino Deposit Guide — Sri Lanka 2026](./frimi-casino-deposit-guide-sri-lanka-2026/)
 - [Nagad Casino Deposit Guide — Bangladesh 2026](./nagad-casino-deposit-guide-bangladesh-2026/)
