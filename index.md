@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (8 articles)
+## Latest Reviews (9 articles)
 
+- [Cricket Betting Bangladesh 2026 — Which Sites Held Up During IPL?](./cricket-betting-bangladesh-2026-which-sites-held-up-during-i/)
 - [JILI Slots Guide 2026 — The Definitive Breakdown for Asian Players](./jili-slots-guide-2026-the-definitive-breakdown-for-asian-pla/)
 - [eSewa Casino Guide — Nepal's Most Trusted Payment Method for Online Casinos](./esewa-casino-guide-nepals-most-trusted-payment-method-for-on/)
 - [FriMi Casino Deposit Guide — Sri Lanka 2026](./frimi-casino-deposit-guide-sri-lanka-2026/)
