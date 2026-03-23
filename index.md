@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (10 articles)
+## Latest Reviews (11 articles)
 
+- [Jeetwin Review 2026 — Still One of the Best for South Asia?](./jeetwin-review-2026-still-one-of-the-best-for-south-asia/)
 - [Online Casino Nepal 2026 — What's Available and What's Not](./online-casino-nepal-2026-whats-available-and-whats-not/)
 - [Cricket Betting Bangladesh 2026 — Which Sites Held Up During IPL?](./cricket-betting-bangladesh-2026-which-sites-held-up-during-i/)
 - [JILI Slots Guide 2026 — The Definitive Breakdown for Asian Players](./jili-slots-guide-2026-the-definitive-breakdown-for-asian-pla/)
