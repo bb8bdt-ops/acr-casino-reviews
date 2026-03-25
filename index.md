@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (12 articles)
+## Latest Reviews (13 articles)
 
+- [Best Online Casino Nepal — eSewa, Khalti & What Actually Works](./best-online-casino-nepal-esewa-khalti-what-actually-works/)
 - [Crickex Casino Review 2026 — The Cricket Betting Specialist](./crickex-casino-review-2026-the-cricket-betting-specialist/)
 - [Jeetwin Review 2026 — Still One of the Best for South Asia?](./jeetwin-review-2026-still-one-of-the-best-for-south-asia/)
 - [Online Casino Nepal 2026 — What's Available and What's Not](./online-casino-nepal-2026-whats-available-and-whats-not/)
