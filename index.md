@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (20 articles)
+## Latest Reviews (21 articles)
 
+- [CK444](./ck444/)
 - [How to Claim Your First Deposit Bonus in Bangladesh 2026 — Complete Guide](./how-to-claim-your-first-deposit-bonus-in-bangladesh-2026-com/)
 - [Is Online Casino Legal in Bangladesh? Complete Legal Guide 2026](./is-online-casino-legal-in-bangladesh-complete-legal-guide-20/)
 - [Complete Guide to Online Casino Deposits in Bangladesh 2026](./complete-guide-to-online-casino-deposits-in-bangladesh-2026/)
@@ -32,4 +33,3 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 - [bKash Casino Deposit Guide 2026 — Step by Step with Screenshots](./bkash-casino-deposit-guide-2026-step-by-step-with-screenshot/)
 - [Best Online Casino Sri Lanka 2026 — Our Verified Picks](./best-online-casino-sri-lanka-2026-our-verified-picks/)
 - [BB8 Casino Bangladesh — Detailed Review After 3 Months of Testing](./bb8-casino-bangladesh-detailed-review-after-3-months-of-test/)
-- [Best Online Casino Bangladesh 2026 — Tested and Ranked](./best-online-casino-bangladesh-2026-tested-and-ranked/)
