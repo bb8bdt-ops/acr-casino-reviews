@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (22 articles)
+## Latest Reviews (23 articles)
 
+- [Top 5 Online Slots for Bangladesh Players in 2026 — JILI, PG Soft & More](./top-5-online-slots-for-bangladesh-players-in-2026-jili-pg-so/)
 - [10 Ways to Spot Online Casino Scams in Bangladesh 2026](./10-ways-to-spot-online-casino-scams-in-bangladesh-2026/)
 - [CK444](./ck444/)
 - [How to Claim Your First Deposit Bonus in Bangladesh 2026 — Complete Guide](./how-to-claim-your-first-deposit-bonus-in-bangladesh-2026-com/)
@@ -32,4 +33,3 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 - [FriMi Casino Deposit Guide — Sri Lanka 2026](./frimi-casino-deposit-guide-sri-lanka-2026/)
 - [Nagad Casino Deposit Guide — Bangladesh 2026](./nagad-casino-deposit-guide-bangladesh-2026/)
 - [bKash Casino Deposit Guide 2026 — Step by Step with Screenshots](./bkash-casino-deposit-guide-2026-step-by-step-with-screenshot/)
-- [Best Online Casino Sri Lanka 2026 — Our Verified Picks](./best-online-casino-sri-lanka-2026-our-verified-picks/)
