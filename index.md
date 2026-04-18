@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (25 articles)
+## Latest Reviews (26 articles)
 
+- [Is Online Gambling Legal in Sri Lanka? The Honest Answer for 2026](./is-online-gambling-legal-in-sri-lanka-the-honest-answer-for-/)
 - [Best Online Casinos Sri Lanka 2026 — Ranked by Real Payout Speed](./best-online-casinos-sri-lanka-2026-ranked-by-real-payout-spe/)
 - [FriMi Casino Guide Sri Lanka 2026 — Deposit and Withdrawal Tested](./frimi-casino-guide-sri-lanka-2026-deposit-and-withdrawal-tes/)
 - [Top 5 Online Slots for Bangladesh Players in 2026 — JILI, PG Soft & More](./top-5-online-slots-for-bangladesh-players-in-2026-jili-pg-so/)
@@ -32,4 +33,3 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 - [Cricket Betting Bangladesh 2026 — Which Sites Held Up During IPL?](./cricket-betting-bangladesh-2026-which-sites-held-up-during-i/)
 - [JILI Slots Guide 2026 — The Definitive Breakdown for Asian Players](./jili-slots-guide-2026-the-definitive-breakdown-for-asian-pla/)
 - [eSewa Casino Guide — Nepal's Most Trusted Payment Method for Online Casinos](./esewa-casino-guide-nepals-most-trusted-payment-method-for-on/)
-- [FriMi Casino Deposit Guide — Sri Lanka 2026](./frimi-casino-deposit-guide-sri-lanka-2026/)
