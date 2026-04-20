@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (27 articles)
+## Latest Reviews (28 articles)
 
+- [eSewa Casino Guide Nepal 2026 — Full Deposit and Withdrawal Walkthrough](./esewa-casino-guide-nepal-2026-full-deposit-and-withdrawal-wa/)
 - [eZCash Casinos Sri Lanka — Complete Guide for 2026](./ezcash-casinos-sri-lanka-complete-guide-for-2026/)
 - [Is Online Gambling Legal in Sri Lanka? The Honest Answer for 2026](./is-online-gambling-legal-in-sri-lanka-the-honest-answer-for-/)
 - [Best Online Casinos Sri Lanka 2026 — Ranked by Real Payout Speed](./best-online-casinos-sri-lanka-2026-ranked-by-real-payout-spe/)
@@ -32,4 +33,3 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 - [Jeetwin Review 2026 — Still One of the Best for South Asia?](./jeetwin-review-2026-still-one-of-the-best-for-south-asia/)
 - [Online Casino Nepal 2026 — What's Available and What's Not](./online-casino-nepal-2026-whats-available-and-whats-not/)
 - [Cricket Betting Bangladesh 2026 — Which Sites Held Up During IPL?](./cricket-betting-bangladesh-2026-which-sites-held-up-during-i/)
-- [JILI Slots Guide 2026 — The Definitive Breakdown for Asian Players](./jili-slots-guide-2026-the-definitive-breakdown-for-asian-pla/)
