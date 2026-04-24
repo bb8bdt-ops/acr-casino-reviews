@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (31 articles)
+## Latest Reviews (32 articles)
 
+- [JazzCash Online Casino Guide Pakistan 2026 — Deposit and Withdrawal Tested](./jazzcash-online-casino-guide-pakistan-2026-deposit-and-withd/)
 - [Top 5 Online Casinos for Nepal Players 2026 — Tested and Ranked](./top-5-online-casinos-for-nepal-players-2026-tested-and-ranke/)
 - [Is Online Gambling Legal in Nepal? What Players Need to Know 2026](./is-online-gambling-legal-in-nepal-what-players-need-to-know-/)
 - [Khalti vs eSewa for Nepal Online Casinos — Which is Better in 2026?](./khalti-vs-esewa-for-nepal-online-casinos-which-is-better-in-/)
@@ -32,4 +33,3 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 - [Casino Bonus Comparison Bangladesh 2026 — The Numbers Behind the Offers](./casino-bonus-comparison-bangladesh-2026-the-numbers-behind-t/)
 - [Live Casino Bangladesh — What Makes a Good Live Dealer Experience?](./live-casino-bangladesh-what-makes-a-good-live-dealer-experie/)
 - [Best Online Casino Nepal — eSewa, Khalti & What Actually Works](./best-online-casino-nepal-esewa-khalti-what-actually-works/)
-- [Crickex Casino Review 2026 — The Cricket Betting Specialist](./crickex-casino-review-2026-the-cricket-betting-specialist/)
