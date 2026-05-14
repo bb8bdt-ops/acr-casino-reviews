@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (36 articles)
+## Latest Reviews (37 articles)
 
+- [Best Roulette Sites in Sri Lanka 2026 — Our Tested Picks](./best-roulette-sites-in-sri-lanka-2026-our-tested-picks/)
 - [How to Withdraw from Online Casinos in Sri Lanka — FriMi and eZCash 2026](./how-to-withdraw-from-online-casinos-in-sri-lanka-frimi-and-e/)
 - [Online Gambling Legal in Pakistan? What the Law Says for Players in 2026](./online-gambling-legal-in-pakistan-what-the-law-says-for-play/)
 - [Top 5 Online Casinos for Pakistan Players 2026 — Ranked by Payout Speed](./top-5-online-casinos-for-pakistan-players-2026-ranked-by-pay/)
@@ -32,4 +33,3 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 - [How to Claim Your First Deposit Bonus in Bangladesh 2026 — Complete Guide](./how-to-claim-your-first-deposit-bonus-in-bangladesh-2026-com/)
 - [Is Online Casino Legal in Bangladesh? Complete Legal Guide 2026](./is-online-casino-legal-in-bangladesh-complete-legal-guide-20/)
 - [Complete Guide to Online Casino Deposits in Bangladesh 2026](./complete-guide-to-online-casino-deposits-in-bangladesh-2026/)
-- [USDT Casino Pakistan 2026 — Crypto Deposits for Pakistani Players](./usdt-casino-pakistan-2026-crypto-deposits-for-pakistani-play/)
