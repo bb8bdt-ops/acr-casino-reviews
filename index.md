@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (39 articles)
+## Latest Reviews (40 articles)
 
+- [Top 10 Casino Games Sri Lankan Players Actually Play in 2026](./top-10-casino-games-sri-lankan-players-actually-play-in-2026/)
 - [Is MelBet Safe for Sri Lanka Players? Our 6-Month Assessment](./is-melbet-safe-for-sri-lanka-players-our-6-month-assessment/)
 - [Sri Lanka Online Casino Scams — Red Flags We Observed in 2026](./sri-lanka-online-casino-scams-red-flags-we-observed-in-2026/)
 - [Best Roulette Sites in Sri Lanka 2026 — Our Tested Picks](./best-roulette-sites-in-sri-lanka-2026-our-tested-picks/)
@@ -32,4 +33,3 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 - [Top 5 Online Slots for Bangladesh Players in 2026 — JILI, PG Soft & More](./top-5-online-slots-for-bangladesh-players-in-2026-jili-pg-so/)
 - [10 Ways to Spot Online Casino Scams in Bangladesh 2026](./10-ways-to-spot-online-casino-scams-in-bangladesh-2026/)
 - [CK444](./ck444/)
-- [How to Claim Your First Deposit Bonus in Bangladesh 2026 — Complete Guide](./how-to-claim-your-first-deposit-bonus-in-bangladesh-2026-com/)
