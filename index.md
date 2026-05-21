@@ -11,8 +11,9 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 
 ---
 
-## Latest Reviews (43 articles)
+## Latest Reviews (44 articles)
 
+- [Best IPL Betting Sites for Nepal Players 2026](./best-ipl-betting-sites-for-nepal-players-2026/)
 - [Best USDT Casinos for Nepal Players — Why Crypto Makes Sense in 2026](./best-usdt-casinos-for-nepal-players-why-crypto-makes-sense-i/)
 - [How to Use Khalti for Nepal Online Casino Deposits 2026](./how-to-use-khalti-for-nepal-online-casino-deposits-2026/)
 - [Nepal Online Casino Legal Status — What Actually Changed in 2026](./nepal-online-casino-legal-status-what-actually-changed-in-20/)
@@ -32,4 +33,3 @@ Expert reviews of the best online casinos for Bangladesh, Sri Lanka, and Nepal p
 - [eZCash Casinos Sri Lanka — Complete Guide for 2026](./ezcash-casinos-sri-lanka-complete-guide-for-2026/)
 - [Is Online Gambling Legal in Sri Lanka? The Honest Answer for 2026](./is-online-gambling-legal-in-sri-lanka-the-honest-answer-for-/)
 - [Best Online Casinos Sri Lanka 2026 — Ranked by Real Payout Speed](./best-online-casinos-sri-lanka-2026-ranked-by-real-payout-spe/)
-- [FriMi Casino Guide Sri Lanka 2026 — Deposit and Withdrawal Tested](./frimi-casino-guide-sri-lanka-2026-deposit-and-withdrawal-tes/)
